@@ -1,2 +1,2 @@
-# ProyectoConjunto_DGarc-a_LABarrag-n
+# ProyectoConjunto_DGarcia_LABarragan
 Proyecto en conjunto
